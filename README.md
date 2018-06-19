@@ -1,1 +1,0 @@
-# Lightning-Training-Chicago
